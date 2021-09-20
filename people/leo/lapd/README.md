@@ -1,1 +1,1 @@
-Sourced from: https://archive.org/details/lapd-sworn-officers-roster-july-2020/page/10/mode/2up
+Sourced from: https://ia801506.us.archive.org/24/items/lapd-sworn-officers-roster-july-2020-unredacted/6.2020.Roster.pdf
