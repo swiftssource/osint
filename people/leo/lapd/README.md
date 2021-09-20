@@ -1,0 +1,1 @@
+Sourced from: https://archive.org/details/lapd-sworn-officers-roster-july-2020/page/10/mode/2up
